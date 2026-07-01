@@ -1,4 +1,3 @@
-<img width="1917" height="912" alt="Screenshot 2026-06-30 162306" src="https://github.com/user-attachments/assets/c90d9008-c54d-424a-8bf7-51a9e0c19f7a" /><img width="1917" height="912" alt="Screenshot 2026-06-30 162306" src="https://github.com/user-attachments/assets/e13bf3f7-2409-480b-8d22-da47c01a7e3f" /><div align="center">
 
   <br />
 
